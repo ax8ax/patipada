@@ -636,6 +636,40 @@ And as a daily meta reflection for a daily usage...
 
 
 
+## `■■` the dhamma  `■■` .. `■■` .. `■■`
+
+the dhamma in short
+
+> gotamī, you might know that certain things lead to passion, not dispassion; to yoking, not to unyoking; to accumulation, not dispersal; to more desires, not fewer; to lack of contentment, not contentment; to crowding, not seclusion; to laziness, not energy; to being burdensome, not being unburdensome. categorically, you should remember these things as not the dhamma teaching, not the vinaya training, and not the teacher’s instructions.
+>
+> Y
+> 
+> you might know that certain things lead to dispassion, not passion; to unyoking, not to yoking; to dispersal, not accumulation; to fewer desires, not more; to contentment, not lack of contentment; to seclusion, not crowding; to energy, not laziness; to being unburdensome, not being burdensome. categorically, you should remember these things as the dhamma teaching, the vinaya training, and the teacher’s instructions.”
+
+the dhamma in short
+
+> ānanda, are all precepts and observances, lifestyles, and spiritual paths fruitful when taken as the essence?
+>
+> ? ? ?
+>
+> take the case of someone who cultivates precepts and observances, a lifestyle, and a spiritual path, taking this as the essence. if unskillful qualities grow while skillful qualities decline, that’s not fruitful.
+> 
+> Y
+> 
+> however, if unskillful qualities decline while skillful qualities grow, that is fruitful.
+
+the dhamma in short
+
+> if, householder, when one strives in a particular way, akusala qualities increase and kusala qualities decline, then, I say, one should not strive in such a way.
+> 
+> `Y`
+> 
+> but if, when one strives in a particular way, akusala qualities decline and kusala qualities increase, then, I say, one should strive in such a way.
+
+in other words... keep it simple stupid ; what's not part of the solution is part of the problem ; pasture the dhammapada `Y` don't pasture beyond the handful of leaves.
+
+
+
 ## `■■` useful reflections `■ ■ ■ . . . ■ ■ ■`  repetition
 
 In oral tradition, repetition is a thing. There's a purpose for that.
