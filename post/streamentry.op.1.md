@@ -17,9 +17,13 @@ In a lot of whathever\_buddhism the maps are even looked down. Not just disbelie
 it can be like this ...
 
 > — "It can be like that, *[celibacy is not obtrusive for oneself ...]*"
+> 
 > — "Whatever. *[I love music]*
+> 
 > — "I like it better like this: *[...]*
+> 
 > ...
+> 
 > *[randoms from the suttas that upon hearing the dhamma from the mouth of the buddha made a wrong turn]*
 
 ... or like this ...
