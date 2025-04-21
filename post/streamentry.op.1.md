@@ -223,7 +223,25 @@ This fencing is done by forcefully imposing the trainer will upon the animals. T
 
 ## `■■` sīla ■ tending
 
-> In the old days Kuei Shan asked Lazy An, “What work do you do during the twenty-four hours of the day?” An said, “I tend an ox.” Kuei Shan said, “How do you tend it?” An said, “Whenever it gets into the grass, I pull it back by the nose.” Kuei Shan said, “You’re really tending the ox!”
+> In the old days Kuei Shan asked Lazy An:
+> 
+> What work do you do during the twenty-four hours of the day?
+> 
+> An said:
+> 
+> I tend an ox.
+> 
+> Kuei Shan said:
+> 
+> How do you tend it?
+> 
+> An said:
+> 
+> Whenever it gets into the grass, I pull it back by the nose.
+> 
+> Kuei Shan said:
+> 
+> You’re really *tending* the ox!
 
 Once they are an enclosed within a reasonable territory, such territory will inevitable contain wholesome and unwholesome pastures; this is the desirable environment [see MN 25](https://suttacentral.net/mn25/en/bodhi). Then trainer needs to actively tend them so they do not get into the unwholesome pastures. At this stage, most of the times the senses will get out of the door without the training being able to pull them back in time: that's ok, as long as they do not get to eat unwholesome grass.
 
@@ -672,9 +690,9 @@ How to approach the whole stage of samādhi? [see MN 62](https://suttacentral.ne
 > 
 > like the Indra pillar he stands firm
 
-Remain silent.
+.. remain silent ..
 
-> **`cetanākaraṇīyasutta`** [a duty of cetanā, the sutta ; an act of will]
+**`cetanākaraṇīyasutta`** [a duty of cetanā, the sutta ; an act of will]
 
 > For a `sīlavato` [someone of virtuous conduct] , who has `sīlasampannassa` [accomplished in virtue], there is no need for an act of will [cetanāya], *May freedom from remorse arise in me.* It is in the nature of things that freedom from remorse arises in a person endowed with virtue, consummate in virtue.
 
