@@ -1,4 +1,4 @@
-This document wants to serve as an introduction for beginners. It aims to points towards stream entry.
+[This document: grazing and ruminating the pastures of the dhammapada](https://github.com/ax8ax/patipada/blob/main/post/hillsidehermitage.op.1.attachment.md) wants to serve as an introduction for beginners to the teaching of the buddha. The main goal is to provide a practical approach for structuring the teachings of the buddha.
 
 I wrote it having the lovely community of `r/streamentry` in mind. [IMHO] It honestly reflects what I have learned from applying the teachings of the dhammapada within the context of the suttas as interpreted by Hillside Hermitage; mainly the two last books of Ajahn Nyanamoli.
 
