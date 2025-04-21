@@ -448,11 +448,11 @@ Know that `kusala` means something is `auspicious for oneself ; auspicious for o
 
 Know that the things that in each `Y` pull you to `akusala` are these three [ :
 
-**greed**: wanting to get something in the game
+`rāga` [ **greed** ; passion , infatuation , attachment ] : wanting to get something in the game
 
-**hatred**: wanting to get rid of someting in the game
+`dosa` [ **hatred** ; aversion, ill-will ] : wanting to get rid of someting in the game
 
-**delusion**: wanting to change something in the game. I'd say it comes in three shades, from coarser to subtle...
+`moha` [ **delusion** ; illusion ] ; wanting to change something in the game. I'd say it comes in three shades, from coarser to subtle...
 
 1. `māna` [of the monkey moon; vanity], vanity in its more subtle level *vanities of vanities, all is vanity*. So, anything that revolves about admiring, comparing, appropriating. Buddha defines it as seeing oneself to be superior than others, seeing oneself to be equal than others, seeing oneself to be inferior than others.
 2. **distraction**, dislike towards stillnes, silence, peace, and all the boredom. One does not want to be sit with the animals without doing anything fancy.
@@ -836,10 +836,10 @@ know that names are names and forms are forms. they are:
 >  
 > no suffering like the taking up of aggregates ,
 >  
-> [ hunger | thirst ] is the worst disease
->  
 > no happiness like [ peace | silence ]
 
+hunger and `taṇhā` [thirst] are the worst `rogā` [disease]
+  
 *have pure mind* .. thus shall you .. *be happy*
 
 [ .. ]
