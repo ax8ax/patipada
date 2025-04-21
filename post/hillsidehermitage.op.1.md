@@ -153,15 +153,15 @@ Each `satta` [creature; being] is a player. Each human player is trapped within 
 
 Each `āyatana` [a stretch] is as powerful as the `vajra` [the thunderbolt; the all mighty weapon of Indra, the Lord of the Gods]. That's why an `āyatana` is also called `indriya` [belonging to Indra]. Unfortunately, the untrained player has no control over such `indriyas`, rather the player is being captive and under the control of the powerful `indriyas`. An `āyatana` is also called an animal... since the senses are alive on their own, have their own wanting, their own likes and dislikes.
 
-In short, an untrained player has the pretension he's master of *this* `satta`, that he leads *this* body from here to there; in fact, he's just being dragged by the wild animals he's chain to, from moment to moment, from life to life. Like in a cartoon, one hits his face every few seconds with a bit of funny `domanassa`.
+In short, an untrained player has the pretension he's master of *this* `satta`, that he leads *this* body from here to there; in fact, he's just being dragged by the wild animals he's chain to, from moment to moment, from life to life. Like in a cartoon, one hits ones face against a hard object every few seconds .. a bit of funny `domanassa`.
 
-Rather than confront the painful reality: *I am being captive by the senses, by the body*, the untrained flips the situation by telling himself *I am the master of the body, this body obeys me*.
+Rather than confront the painful reality: *I am being captive by the senses, by the body, I dislike it*, the untrained flips the situation by telling himself *I am the master of the body, this body obeys me, I love it*.
 
 
 
 ## `■■` āyatana, the six wild animals
 
-From distant to near, these are the six wild animals.
+From top to bottom, from distant to near, these are the six wild animals.
 
 1. eye, sights, snake. An untrained eye acts like a snake. When he sees something he likes it, he approach serpently to it, surrounds it, hugs it, and try to eat it with his mouth.
 2. ear, sounds, crocodile. An untrained ear acts like a crocodile. When he hears something he likes it he catch it with his mouth and won't release it, not matter what.
@@ -194,26 +194,26 @@ Let's say one moves his body by properly through the gamepad, through attention 
 
 By using such gamepad one can perform grosser actions such as: `cittasaṅkhāra` [citta actions], `vacīsaṅkhāra` [verbalization], `kāyasaṅkhāra` [bodily actions]. Each `saṅkhāra` has associated an `cetana` [intention]. Those `saṅkhāra` may result in the three kind of actions: actions by mind, actions by speech, actions by body.
 
-What's the problem? The untrained mind has no clue how to skillfully use the gamepad. He does not even know there's a gamepad to being with... He is completely unaware of the intentions behinds his own actions.
+What's the problem? The untrained mind has no clue how to skillfully use the gamepad. He does not even know there's a gamepad to being with... He is completely unaware of the intentions behinds his own actions. His attention whirls arround in the rapids of the river of thirst.
 
 
 
 
 # ■ taming animals [practice]
 
-The main simile that buddha used over and over again, is the training wild animals [see MN 125 for instance](https://suttacentral.net/mn125/en/bodhi). If a player were to follow buddha's instructions he would see that: the player himself is to be seen as a wild animal that needs to be tamed, the six senses are to be seen as wild animals that needs to be tame.
+A key simile buddha used over and over again, is the training wild animals [see MN 125 for instance](https://suttacentral.net/mn125/en/bodhi). If a player were to follow buddha's instructions he would see that: the player himself is to be seen as a wild animal that needs to be tamed, the six senses are to be seen as wild animals that needs to be tame.
 
 **Meditation is meditation as long as one is taming oneself.** This self taming meditation should be done at all times. The effective way to tame is not let the animals misbehave, not even once.
 
-One tames a wild animal not by words, nor violence, but by forcing them to change their behaviours, their pastures. Habits need reinforcement to keep them alive [see MN 18](https://suttacentral.net/mn18/en/bodhi). The trainer should not let the animal to roam the pastures they want, thus those habits eventually dry by themselves in the course of time.
+One tames a wild animal not by words, nor violence, but by forcing them to change their behaviours, their pastures. Habits need reinforcement to keep themselves alive [see MN 18](https://suttacentral.net/mn18/en/bodhi). The trainer should not let the animal to roam the pastures they want, thus those habits eventually dry by themselves in the course of time.
 
 The habit of the untrained wild senses is to be interested with the objects of the game; to step out of the doors to interact with the world at every single opportunity. The first thing one needs to do, then, is to not allow them to step out on their own, but only when the trainer lets them.
 
-One should train oneself by following the `majjhimapaṭipadā` [middle way]. This means: one does not try to delight in the objects of the `saṃsāra` contacted by the senses; one does not try to get rid of in the objects of the `saṃsāra` contacted by the senses. Instead endures any experience that attacks the senses until the danger fades away [see SN 56.48](https://suttacentral.net/sn56.48/en/bodhi). This is the meaning of:
+One should train oneself by following the `majjhimapaṭipadā` [middle way]. This means: one does not try to delight in the objects of the `saṃsāra` contacted by the senses; one does not try to get rid of in the objects of the `saṃsāra` contacted by the senses. Instead one endures any experience that attacks the senses until the danger fades away [see SN 56.48](https://suttacentral.net/sn56.48/en/bodhi). This is the meaning of:
 
 > Forgiveness-patient endurance is the ultimately austerity.
 
-The key is that the trainer must keep cool, and have a friendly attitude towards the animal, whether the animal is misbehaving or wellbehaving. By repeating this over and over again the six senses and the trainer start to become uninterested with the whole game.
+The key is that the trainer must keep cool, and have a friendly attitude towards the animal, whether the animal is misbehaving or wellbehaving. It is the nature of the wild animal to wrongly pull towards the door. It is the nature of the trainer to forgive the animal, it is the nature of the trainer to exhert himself so that he gives no change to the animal to missbehave. By repeating this over and over again the six senses and the trainer start to become uninterested with the whole game.
 
 The main `gocara` [pasture] on the training are these:
 
@@ -383,7 +383,7 @@ citta is a narrative driven creature, so it has sense to tame it through a narra
 
 [SN 22.95](https://suttacentral.net/sn22.95/en/bodhi) the magic show of the animals — what you have been taken granted to be gold, were a bunch of empty illusions
 
-[MN 75](https://suttacentral.net/mn75/en/bodhi) the burning pit — the non illusory suffering of being subject to the fire of passions... there is no fire like lust, no river like craving, no grasp like anger, no net like delusion...
+[MN 75](https://suttacentral.net/mn75/en/bodhi) the burning pit — the non illusory suffering of being subject to the fire of passions... there is no fire like lust, no river like thirst, no grasp like anger, no net like delusion...
 
 [SN 12.66](https://suttacentral.net/sn12.66/en/bodhi) drinking poision — the middle way is easy to apply if one is vigilant and sees the dangers of delight in sensuality, that how Indra, the top\_ladder plays
 
@@ -486,7 +486,7 @@ Thus... it is easy to evaluate oneself in this roleplay game. Just ask yourself.
 > 
 > happiness follows,
 > 
-> like a shadow that never departs ||  
+> like a shadow that never departs ||
 > 
 > `[ Y ]`
 > 
@@ -906,7 +906,7 @@ Be practical; diagnose, cure, and live, practicing the dhamma.
 ...
 
 The dhamma that worked there\_and\_then is the very same that works here\_and\_now.
-                           
+
 By the way... what is a nice approach to the *dilema* of what to do of the *right view*; the foreruner limb of the `airya` eight limb `magga`... Knowing I am not noble at all, by definition, I have no right view, whatsoever...
 
 These are some helpful mundane narratives to keep in mind for not to end trapped in a net of views...
@@ -917,17 +917,19 @@ These are some helpful mundane narratives to keep in mind for not to end trapped
 3. as regards `vacīsaṅkhāra` [ actions by speech, whether internal or external ]; suppose a mendicant wearing rag robes sees a rag by the side of the road; they’d hold it down with the left foot, spread it out with the right foot, tear out what was intact, and take it away with them; n the same way, at that time you should ignore that person’s impure behavior by way of body and focus on their [pure behavior by way of speech](https://suttacentral.net/an5.162/en/bodhi).
 4. as regards `views` [ diṭṭhi ; dṛṣṭi ]; pacify your views ... don't get emotionally involved with your views... [whatever has arise is dependently originated, anicca, dukkha, anatta](https://www.dhammatalks.org/suttas/AN/AN10_93.html) and [having abandoned conceit  illusion, by what means would he go, he isn’t involved](https://www.dhammatalks.org/suttas/KN/StNp/StNp4_3.html) and *victory begets hatred, the defeated one experience suffering; the tranquil one experiences happiness .. giving up victory and defeat*.
 
+> do what is right at a given moment and leave it behind
+
 If you were to learn verses... as part of the training, according how it was done in the times of buddha... the right intention is to remember that this is just the first step, the one that enables the skillfully subsequent step, from moment to moment.
 
-> He who for his own benefit recites the beneficial things ,  
+> He who for his own benefit recites the beneficial things ,
 >  
-> but does not act accordingly ,  
+> but does not act accordingly ,
 >  
-> that foolish man ,  
+> that foolish man ,
 >  
-> like a cowherd that counts the cows of others ,  
+> like a cowherd that counts the cows of others ,
 >  
-> he ;  
+> he ;
 >  
 > is not enriched by the ascetic pada.
 
