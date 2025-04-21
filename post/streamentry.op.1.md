@@ -1,4 +1,4 @@
-[ `subject` [ the wise tame themselves .. how to pasture to reach stream entry] ; `tag` `[: CONDUCT :]` ]
+[:title: `subject` [ the wise tame themselves .. how to pasture to reach stream entry ] ; `tag` `[: CONDUCT :]` :title:]
 
 The teachings in three simple `pada` [a step covering a quarter] of three different `sutta` [well taught verses of truth], the three stages:
 

@@ -1,3 +1,5 @@
+[:title: `subject` [ the wise tame themselves .. how to pasture to reach stream entr ] ; `tag` `[: CONDUCT :]` :title:]
+
 The teachings in three simple `pada` [a step covering a quarter] of three different `sutta` [well taught threads of truth], the three stages:
 
 1. don't abandon yourself to unvigilance
@@ -218,7 +220,7 @@ If you want to keep read this document [click here, reddit issues](https://githu
 
 # postdata: [meta-game meta-reflexion]
 
-What would you opine of a bunch of Christians that would be very offend if Christ happened to resurrect in the here\_and\_now and preached what preached in the there\_and\_then? Either is 😈 or quite `😈`\-ish.
+What would you opine of a bunch of Christians that would be very offend if Christ happened to resurrect in the here\_and\_now and Christ preached in the here\_and\_now what preached in the there\_and\_then? Either such followers are 😈 or quite `😈`\-ish.
 
 What do you opine of a bunch of practitioners of the dhamma that are offended if the words of the buddha are being preached as being the truth of the dhamma?
 
