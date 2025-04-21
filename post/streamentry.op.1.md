@@ -572,8 +572,11 @@ Thus... it is easy to evaluate oneself in this roleplay game. Just ask yourself.
 `[ vagga 18 ]` is about stain, the origin of unhappiness
 
 > you are now of advanced age ,
+> 
 > you have gone forth into the presence of death ;
+> 
 > there is no place for you in between ,
+> 
 > and you don't even have provisions for the road .
 
 
