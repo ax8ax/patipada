@@ -83,7 +83,7 @@ Therefore, were one to believe the `dhamma` [natural order, flow, truth], the fi
 
 # ■ oral tradition [context]
 
-The teaching of buddha are few, clear, and expressed in beautiful verses. **The teachings of the buddha were meant to be learned, recited, and followed.** They were not meant to be read, studied, and contemplated intellectually.
+The teaching of buddha are few, clear, and expressed in beautiful verses. **The teachings of the buddha were meant to be learned, recited, and followed.** They were not meant to be read, studied, and proliferated intellectually.
 
 If one wants to follow the spirit of the teaching of the buddha, I'd encourage all practitioner to learn by heart the few relevant verses to the stage one is working in. The first three verses are the key for sīla, samādhi, and pañña. If one does not know the teachings, how one is supposed to apply them in real life...? It is not possible to apply them.
 
@@ -796,7 +796,7 @@ How to approach the whole stage of samādhi? [see MN 62](https://suttacentral.ne
 
 *it is in the nature of things* that the mind of a person experiencing sukha experiences samādhi.
 
-`paṭiccasamuppāda` is not anything more than applying the `idappaccayatā` perception, this technique over `nāma`, to overcome his own personal difficulties in the training. The `paṭiccasamuppāda`, as anything in within the training [the field of work one does in the pastures tending the ox `[O Y X]` 247] is useful insofar one is applying it in this daily practice and getting benefits from it...
+`paṭiccasamuppāda` is not anything more than applying the `idappaccayatā` perception, this technique over `nāma`, to overcome one's own personal difficulties in the training. The `paṭiccasamuppāda`, as anything in within the training [the field of work one does in the pastures tending the ox `[O Y X]` 247] is useful insofar one is applying it in this daily practice and getting benefits from it...
 
 `idappaccayatā` [`[ .. ]`] is nothing more than apply the template `with [: this :] then [: this :]`to describe the natural flow of the things, the natural order.
 
