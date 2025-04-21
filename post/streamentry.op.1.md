@@ -28,7 +28,12 @@ it can be like this ...
 
 ... or like this ...
 
-> When it comes to the Dhamma, we have to understand that our opinions are one thing; the Dhamma is something else.  
+> When it comes to the Dhamma,
+> 
+> we have to understand that our opinions are one thing;
+> 
+> the Dhamma is something else.  
+> 
 > *[Ajahn Chah ; in the shape of a circle]*
 
 ... which way should we turn in this `[ left Y right]` bifurcation?
@@ -38,26 +43,37 @@ it can be like this ...
 Even more people, yet, fail to apply the very first instruction from the dhammapada.
 
 > He abused me, he beat me, he robbed me, he conquer me!
+> 
 > Those who entertain such thoughts will not still their hatred.
+> 
 > `[ dhammapada 1 Y2 a ]`
 
 Do they understand that all the dhamma is perfectly defined in the first pair of the dhammapada?
 
 > Experiences are preceded by mind ,
+> 
 > lead by mind, and produced by mind ;
+> 
 > if one speaks or acts *[or thinks]* with an impure mind,
+> 
 > suffering follows,
+> 
 > even as a cartwheel the hoof of the ox.
-
+> 
 > `[ dhammapada 1 Y1 a ]`
 
 .. this or this  ..
 
 > Experiences are preceded by mind,
+> 
 > lead by mind, and produced by mind.
+> 
 > If one speaks or acts with a pure mind,
+> 
 > happiness follows,
+> 
 > like a shadow that never departs.
+> 
 > `[ dhammapada 1 Y1 l ]`
 
 Therefore, were one to believe the `dhamma` [natural order, flow, truth], the first thing one would do would be to follow the dhamma, by going against the grain of the world, if needed. Thus, happiness follows, otherwise, nevertheless, suffering follows. It follows in the here-now, and it follows in the there-after.
@@ -285,7 +301,9 @@ Some think of sīla, samādhi, and pañña as three axis. They are not. It is ju
 Count and gauge the millions of useless good-for-nothing delusional thoughts people have, suffer because of them, yet they go and incubate more of them, because one is enough interested to care for one's habits by perpetuating them... which results in a never ending flow of proliferation. *[all is vanity and vexation of the spirit]*
 
 > people carry more and more thoughts driven by thirst ,
+> 
 > having enough already, they still fuel for more ;
+> 
 > [ Yuan Canon 元藏 y1.5 ]
 
 **pañña is the uprooting of thirst**
@@ -295,13 +313,17 @@ From the worldly point of view: this thirst is the very purpose that gives sense
 This pañña is non other than the famous let go, give up, relinquish, renounce... This is the last step, and the very first, and the very core. The raze of the wisdom of renounce is the ultimate scalpel that extirpates the cancer of this disease that is called wanting to `bhāva` [become something].
 
 > Look at this painted doll: this pretentious mass of sores, wretched, and full of cravings; nothing of which stable or lasting.
+> 
 > Wasted away is this body, a nest of diseases, and perishable; the putrid mass breaks up, death is the end of life.
+> 
 > This body is a city, build of bones and plastered with flesh and blood; a city wherein lies concealed decay and death, pride and hypocrisy.
 
 ... a key theme of the teaching is dead ... decay, disease, dead, the endmaker, `Yama` ... birth ...
 
 > M : — For whom is this spreading of grass laid down in the good Bhāradvāja's fire-room? It seems like a recluse's steeping place.
+> 
 > B : — This has been prepared for that Master Gotama.
+> 
 > M : — Indeed, Master Bhāradvāja, it is an ill sight we see when we see the resting place of **that destroyer of growth, Master Gotama**.
 
 [ MN 75 ](https://suttacentral.net/mn75/en/bodhi) Other translation choice is to say: Buddha is a mass murder. Gotama is *a destroyer of the youth*, *a baby killer*. He is one who that has conquer the world and points the way out of the cycle of decay and birth by drying the vices, cutting down the whole forest, uprooting the fetters... and make the saṃsāra lose a player.
@@ -316,6 +338,7 @@ Māra is kind of saṃsāra Cheerleader who feels sad when one would stop pay at
 The gradual training tells you the macro stages you are in. The dhammapada tells you the next concrete behaviorus you should focus to conquer by applying the middle way. The verses of the dhammapada are straightforward to apply...
 
 > Non by hatred are hatred ever pacified here in the world, they are pacified by non hatred; this is the eternal law.
+> 
 > Others do not realize that we are all heading for death; those who do realize it will compose their quarrels.
 
 Yet they are hard to follow...
@@ -411,27 +434,45 @@ Thus... it is easy to evaluate oneself in this roleplay game. Just ask yourself.
 `[ Y1 ]` the truth of the dhamma
 
 > experiences are preceded by mind ,
+> 
 > lead by mind, and produced by mind ,
+> 
 > if one speaks or acts with a pure mind,
+> 
 > happiness follows,
+> 
 > like a shadow that never departs ||  
+> 
 > `[ Y ]`
+> 
 > experiences are preceded by mind ,
+> 
 > lead by mind, and produced by mind ,
+> 
 > if one speaks or acts with a pure mind,
+> 
 > happiness follows,
+> 
 > like a shadow that never departs ||
 
 `[ Y2 ]` apply truth of the dhamma to the big wound; stop fueling more hatred by silence; the truth is the the middle way, the big wound is that where it hurts the most, when oneself has been abused of!
 
 > he abused me , he beat me ,
+> 
 > he robbed me , he conquered me!
+> 
 > he, who entertain such thoughts,
+> 
 > will not still their hatred ||
+> 
 > `[ Y ]`
+> 
 > he abused me , he beat me ,
+> 
 > he robbed me , he conquered me!
+> 
 > he, who does not entertain such thoughts,
+> 
 > will still their hatred ||
 
 `[ Y3 ]` once one is not bleeding anymore, one applies the truth to heal it; overcome hatred by non hatred; overcome your hatred towards those problems that make you suffer
@@ -489,16 +530,23 @@ Thus... it is easy to evaluate oneself in this roleplay game. Just ask yourself.
 `[ vagga 15 ]` is about how to happiness —
 
 > happy indeed we live ;:
+> 
 > friendly amid the hater ;:
+> 
 > healthy amid the sick ;:
+> 
 > content amid the greedy ;:
+> 
 > we for whom there are no possessions ;:
 
 `[ vagga 16 ]` is about the dear, the destroyer hen of the happiness
 
 > not seeing the dear is painful as it seen the under ;:
+> 
 > therefore, let nothing be dear to you ;:
+> 
 > from the dear arises grief ;:
+> 
 > from the dear arises fear ;:
 
 `[ vagga 17 ]` is about anger, the chicken of the dear — hold the arisen anger as a swerving chariot
@@ -621,6 +669,7 @@ Reach stream entry [see MN 9](https://suttacentral.net/mn9/en/bodhi)
 How to approach the whole stage of samādhi? [see MN 62](https://suttacentral.net/mn62/en/bodhi)
 
 > like the earth he offers no opposition
+> 
 > like the Indra pillar he stands firm
 
 Remain silent.
@@ -651,9 +700,13 @@ Remain silent.
 
 `... [ ... .. ... .. ... ] ...`
 
+> ... 
+>  
 > ..
 >  
 > ..
+>  
+> ...
 
 *it is in the nature of things* that freedom from remorse arises in a person endowed with virtue, consummate in virtue.
 
@@ -702,9 +755,13 @@ know that names are names and forms are forms. they are:
 .. `anatta` [not oneself, not mine, not a safe refuge for me, and intoxicant pasture ]
 
 > there is no fire like lust ,
+>  
 > no blemish like demerit ,
+>  
 > no suffering like the taking up of aggregates ,
+>  
 > [ hunger | thirst ] is the worst disease
+>  
 > no happiness like [ peace | silence ]
 
 *have pure mind* .. thus shall you .. *be happy*
@@ -735,11 +792,17 @@ The dhamma is a template as a language itself. Apply the dhamma to your problems
 Be practical; diagnose, cure, and live, practicing the dhamma.
 
 > Get up!
+>  
 > Don't be heedless!
+>  
 > Live practicing the dhamma!
+>  
 > Which is good conduct.
+>  
 > Those who .. live ^(practicing) the dhamma .. dwell happy ..
+>  
 > __ __  in this world    ..    and the other    ..  __ __
+>  
 
 
 
@@ -761,10 +824,15 @@ By the way what is the right view?
 If you were to learn verses... as part of the training, according how it was done in the times of buddha... remember, this is just the first step, the one that enables the skillfully step, from time to time.
 
 > He who for his own benefit recites the beneficial things ,  
+>  
 > but does not act accordingly ,  
+>  
 > that foolish man ,  
+>  
 > like a cowherd that counts the cows of others ,  
+>  
 > he ;  
+>  
 > is not enriched by the ascetic pada.
 
 *namo tassa bhagavato arahato sammāsaṃ*buddhassa
