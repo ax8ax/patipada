@@ -856,7 +856,7 @@ Be practical; diagnose, cure, and live, practicing the dhamma.
 >  
 > Those who .. live ^(practicing) the dhamma .. dwell happy ..
 >  
-> __ __  in this world    ..    and the other    ..    __ __
+> o  ..  in this world    ..    and the other  ..  o
 >  
 
 
