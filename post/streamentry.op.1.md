@@ -399,6 +399,27 @@ citta is a narrative driven creature, so it has sense to tame it through a narra
 
 [AN 5.140](https://suttacentral.net/an5.140/en/bodhi) the royal elephant — when a royal bull sees a sight with the eye...
 
+...
+
+[SN 22.101](https://suttacentral.net/sn22.101/en/bodhi) suppose, bhikkhus there was a hen with eight, ten, or twelve eggs
+
+>  I say that the destruction of the taints is for one who knows and sees, not for one who does not know and does not see.
+>
+> ..
+> 
+> Suppose, bhikkhus there was a hen with eight, ten, or twelve eggs that she had not covered, incubated, and nurtured properly. Even though such a wish as this might arise in her: *Oh, that my chicks might pierce their shells with the points of their claws and beaks and hatch safely!* yet the chicks are incapable of piercing their shells with the points of their claws and beaks and hatching safely.
+> 
+> For what reason?
+> 
+> Because that hen with eight, ten, or twelve eggs had not covered, incubated, and nurtured them properly.
+>
+> `[ ⚔ Y ⚔ ]`
+> 
+> Suppose, bhikkhus, there was a hen with eight, ten, or twelve eggs that she had covered, incubated, and nurtured properly. Even though no such wish as this might arise in her: *Oh, that my chicks might pierce their shells with the points of their claws and beaks and hatch safely!* yet the chicks are capable of piercing their shells with the points of their claws and beaks and of hatching safely.
+>
+> For what reason?
+> 
+> Because that hen with eight, ten, or twelve eggs had covered, incubated, and nurtured them properly.
 
 
 ## `■■` dhammapada
@@ -423,7 +444,7 @@ You should learn a pair of verses and apply them.
 
 **Are you able to conquer the** `Y` of the level of the game corresponding to such verse?
 
-Know that `kusala` means something is `auspicious for oneself ; auspicious for others ; auspicious for oneself` and for the others\`
+Know that `kusala` means something is `auspicious for oneself ; auspicious for others ; auspicious for oneself and for the others` ... something that a priori is beneficial for the whole universe ...
 
 Know that the things that in each `Y` pull you to `akusala` are these three [ :
 
