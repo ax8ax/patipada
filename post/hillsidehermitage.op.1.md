@@ -10,7 +10,9 @@ This is an introduction for beginners having the community of `r/streamentry` ab
 
 That said, it should be helpful to anyone, specially, the ones who have trouble either with too much proliferation about the dhamma, or to apply too little the dhamma in the real life.
 
-The only motivation for this was to sort out for myself what I learned, and some thoughts about the practice. However, there were three additional motivations for this...
+The only motivation of this document was to sort out for myself what I learned, and some thoughts about the practice... The motivation for posting it, is not other than to be corrected: I am sure that in the several place where, out of not knowing better, I have spilled out many errors.
+
+However, there were three additional motivations for this:
 
 `[ 1 ]` The post is explained as it was a `video_game`, a `roleplay_game`. I think some people would greatly benefit if they try to role\_play all\_day to act as buddha himself would act in a vr-chat universe. Larp as a buddha, until you succeed to be like one. This will make you happy.
 
@@ -667,7 +669,7 @@ the dhamma in short
 
 > gotamī, you might know that certain things lead to passion, not dispassion; to yoking, not to unyoking; to accumulation, not dispersal; to more desires, not fewer; to lack of contentment, not contentment; to crowding, not seclusion; to laziness, not energy; to being burdensome, not being unburdensome. categorically, you should remember these things as not the dhamma teaching, not the vinaya training, and not the teacher’s instructions.
 >
-> Y
+> `Y`
 > 
 > you might know that certain things lead to dispassion, not passion; to unyoking, not to yoking; to dispersal, not accumulation; to fewer desires, not more; to contentment, not lack of contentment; to seclusion, not crowding; to energy, not laziness; to being unburdensome, not being burdensome. categorically, you should remember these things as the dhamma teaching, the vinaya training, and the teacher’s instructions.”
 
@@ -675,11 +677,11 @@ the dhamma in short
 
 > ānanda, are all precepts and observances, lifestyles, and spiritual paths fruitful when taken as the essence?
 >
-> ? ? ?
+> `¿? ¿ ? ¿?`
 >
 > take the case of someone who cultivates precepts and observances, a lifestyle, and a spiritual path, taking this as the essence. if unskillful qualities grow while skillful qualities decline, that’s not fruitful.
 > 
-> Y
+> `Y`
 > 
 > however, if unskillful qualities decline while skillful qualities grow, that is fruitful.
 
@@ -909,7 +911,7 @@ These are some helpful mundane narratives to keep in mind for not to end trapped
 3. as regards `vacīsaṅkhāra` [ actions by speech, whether internal or external ]; suppose a mendicant wearing rag robes sees a rag by the side of the road; they’d hold it down with the left foot, spread it out with the right foot, tear out what was intact, and take it away with them; n the same way, at that time you should ignore that person’s impure behavior by way of body and focus on their [pure behavior by way of speech](https://suttacentral.net/an5.162/en/bodhi).
 4. as regards `views` [ diṭṭhi ; dṛṣṭi ]; pacify your views ... don't get emotionally involved with your views... [whatever has arise is dependently originated, anicca, dukkha, anatta](https://www.dhammatalks.org/suttas/AN/AN10_93.html) and [having abandoned conceit  illusion, by what means would he go, he isn’t involved](https://www.dhammatalks.org/suttas/KN/StNp/StNp4_3.html) and *victory begets hatred, the defeated one experience suffering; the tranquil one experiences happiness .. giving up victory and defeat*.
 
-If you were to learn verses... as part of the training, according how it was done in the times of buddha... remember, this is just the first step, the one that enables the skillfully step, from time to time.
+If you were to learn verses... as part of the training, according how it was done in the times of buddha... the right intention is to remember that this is just the first step, the one that enables the skillfully subsequent step, from moment to moment.
 
 > He who for his own benefit recites the beneficial things ,  
 >  
