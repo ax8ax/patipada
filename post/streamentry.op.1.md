@@ -893,10 +893,10 @@ The dhamma that worked there\_and\_then, and that works here\_and\_now. In some 
 
 By the way what is the right view?
 
-1. with the world; to treat any other better than one would treat oneself.
-2. with oneself; to know one if delusional and needs to be vigilant to step by step walk the dhammapada
-3. with `vacīsaṅkhāra` [ actions by speech, whether internal or external ]; suppose a mendicant wearing rag robes sees a rag by the side of the road; they’d hold it down with the left foot, spread it out with the right foot, tear out what was intact, and take it away with them; n the same way, at that time you should ignore that person’s impure behavior by way of body and focus on their [pure behavior by way of speech](https://suttacentral.net/an5.162/en/bodhi).
-4. as regards views; [whatever has arise is dependently originated, anicca, dukkha, anatta](https://www.dhammatalks.org/suttas/AN/AN10_93.html) and [having abandoned conceit  illusion, by what means would he go, he isn’t involved](https://www.dhammatalks.org/suttas/KN/StNp/StNp4_3.html) and [*victory begets hatred, the defeated one experience suffering; the tranquil one experiences happiness .. giving up victory and defeat*](#).
+1. as regards training oneself; to know one if delusional and needs to be vigilant to step by step walk the dhammapada
+2. as regards actions; to treat any other better than one would treat oneself.
+3. as regards `vacīsaṅkhāra` [ actions by speech, whether internal or external ]; suppose a mendicant wearing rag robes sees a rag by the side of the road; they’d hold it down with the left foot, spread it out with the right foot, tear out what was intact, and take it away with them; n the same way, at that time you should ignore that person’s impure behavior by way of body and focus on their [pure behavior by way of speech](https://suttacentral.net/an5.162/en/bodhi).
+4. as regards `views` [ diṭṭhi ; dṛṣṭi ]; [whatever has arise is dependently originated, anicca, dukkha, anatta](https://www.dhammatalks.org/suttas/AN/AN10_93.html) and [having abandoned conceit  illusion, by what means would he go, he isn’t involved](https://www.dhammatalks.org/suttas/KN/StNp/StNp4_3.html) and [*victory begets hatred, the defeated one experience suffering; the tranquil one experiences happiness .. giving up victory and defeat*](#).
 
 If you were to learn verses... as part of the training, according how it was done in the times of buddha... remember, this is just the first step, the one that enables the skillfully step, from time to time.
 
