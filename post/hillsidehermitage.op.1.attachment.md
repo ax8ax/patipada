@@ -116,7 +116,7 @@ There are tons of suttas, but everything emanates from three fundamental concept
 ## `■` *the macro map*
 
 * the detailed skill attainment oriented map that one needs to conquer, step by step, to succeed in walking the path
-* `anupubbapaṭipadā` [step by step path of steps of the trainee]
+* `anupubbapaṭipadā` [following east, step by step, path of steps of the trainee]
 * [see DN 2](https://suttacentral.net/dn2/en/bodhi).
 
 
@@ -871,7 +871,7 @@ Know a bit of [prosody](https://ancient-buddhist-texts.net/Textual-Studies/Pali-
 
 Try listening someone you like reciting and recite like them. I suggest you [Girimānanda Sutta by Dhammaruwan ](https://www.youtube.com/watch?v=guN5qMeuv70) and the [Dhammapada by Colombo Dhamma Friends](https://www.youtube.com/watch?v=vN2_VgJ0Qso&list=PLIqIzb1e84AXCQ72dQQt7Z3W7JqpFvv-M).
 
-I strongly discourage this... but if you were to write the `pāli`, do it by hand, at least. Use a language where all syllables are like `[cv]` or `[cvc]`, where `c` and `v` are one mark, one character wide. The easiest solution is rather than using `h` is to have a version of `kgcjtdpb`, with some ligature at the end trace. In the same way is better to avoid `d` and use some distinctive variation within one natural trace, rather than `punctuating` the letter, that breaks the natural flow of writing.
+I strongly discourage this... but if you were to write the `pāli`, do it by hand, at least. Use a language where all syllables are like `[cv]` or `[cvc]`, where `c` and `v` are one mark, one character wide. The easiest solution is rather than using `h` is to have a version of `kgcjtdpb`, with some ligature at the end trace. In the same way is better to avoid `ḍ` and use some distinctive variation within one natural trace, rather than `punctuating` the letter, that breaks the natural flow of writing.
 
 If you were to learn the `pāli`, try understanding the dhammapada and the DN2 by heart, each word, each root. The [grammar form of the dhammapada](http://buddhism.lib.ntu.edu.tw/BDLM/en/lesson/pali/lesson_pali3.jsp), some [words of the Buddha paired to the English counterpart](https://www.buddha-vacana.org/), some [dictionary](https://dpdict.net/?q=manasau), some list of roots [list\_1](https://archive.org/details/ThePaliRootsInSaddaniti/), [list\_2](https://archive.org/details/b.-bhikkhus-root-bible), [list\_3](https://archive.org/details/palidhatupathadh00andeuoft/page/18/mode/2up). If you learn this mirrored the brain has enough pasture to learn the language sooner than later.
 
