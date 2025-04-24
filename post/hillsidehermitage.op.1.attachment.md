@@ -22,7 +22,7 @@ In a lot of whathever\_buddhism the maps are even looked down. Not just disbelie
 
 it can be like this ...
 
-> — "It can be like that, *[ non celibacy is not obtrusive for the one who is not celibate ... ]*"
+> — "It can't be like that, *[ non celibacy is not obtrusive for the one who is not celibate ... ]*"
 > 
 > — "Whatever. *[ I love music | ... ]*
 > 
@@ -432,7 +432,7 @@ citta is a narrative driven creature, so it has sense to tame it through a narra
 
 Each verse of the dhamma, offers a clear commandment to follow. Learn them. Play them as it were a room, apply them in every moment of your life, rinse and repeat, until you have conquered such behaviour.
 
-The dhammapada points the path of `Ys` to be follow by showing: you how one direction, the `akusala` lead to suffering; how the other direction, the `kusala` lead to `nibbāna`.
+The dhammapada points the path of `Ys` to be follow by showing you: how one direction, the `akusala` lead to suffering; how the other direction, the `kusala` lead to `nibbāna`.
 
 > **The trainer shall make out the well taught verses of dhamma, as an expert picks flowers**.
 
@@ -556,7 +556,7 @@ Thus... it is easy to evaluate oneself in this roleplay game. Just ask yourself.
 
 `[ vagga 7 ]` how those who walked the path are.
 
-`[ vagga 8 ]` is a motivational speech to conquer oneself, even a tiny steps brings much benefit, at least gain some merit by bowing to those worthy to be bowed, this is not to be reckoned as such and such.
+`[ vagga 8 ]` is a motivational speech to conquer oneself, even a tiny step brings much benefit, at least gain some merit by bowing to those worthy to be bowed, this is not to be reckoned as such and such.
 
 `[ vagga 9 ]` is about knowing evil, avoid it as the plague.
 
@@ -586,7 +586,7 @@ Thus... it is easy to evaluate oneself in this roleplay game. Just ask yourself.
 
 `[ vagga 16 ]` is about the dear, the destroyer hen of the happiness
 
-> not seeing the dear is painful as it seen the under ;:
+> not seeing the dear is painful as it seen the undear ;:
 > 
 > therefore, let nothing be dear to you ;:
 > 
@@ -655,7 +655,7 @@ And as a daily meta reflection for a daily usage...
 
 *What are the three most hard things to do in this training?* [see SN 38.16](https://suttacentral.net/sn38.16/en/bodhi)
 
-[ 1 ] How much have I renunciation today as regards: to indulge in seeing the lovely; with senses unrestrained; immoderate in food; lazy for walking the dhammapada; and with inferior energy for taming 247 the wild animals.
+[ 1 ] How much have I renunciate today as regards: to indulge in seeing the lovely; with senses unrestrained; immoderate in food; lazy for walking the dhammapada; and with inferior energy for taming 247 the wild animals.
 
 [ 2 ] How much content, happiness, friendly, peace, composed, and silence as regards the world I have enjoyed today?
 
