@@ -743,19 +743,23 @@ Thus... it is easy to evaluate oneself in this roleplay game. Just ask yourself.
 > 
 > `[ verse dhammapada 1 12 ]`
 
-[:
-the whole point of any teachings of the dhamma, such as the bows, is to follow them by **deed** , **word** , **thought** , ...
-those bows are part of the first steps towards the purification of all evil
+[:  
+the whole point of any teachings of the dhamma, such as the bows, is to follow them by **deed** , **word** , **thought** , ...  
+those bows are part of the first steps towards the purification of all evil  
 
-experiences are preceeded by mind
+experiences are preceeded by mind  
+
 ...
-learn to know the happiness that comes from purity
-this happiness is blameless
-there is no delusion in looking for happiness
-what is delusion is looking for happines *outside*
+
+learn to know the happiness that comes from purity.  
+this happiness is blameless.  
+there is no delusion in looking for happiness.  
+what is delusion is looking for happines *outside*.  
+
 ...
-suffering is a condition for faith
-by means of craving one gives up craving
+
+suffering is a condition for faith...  
+by means of craving one gives up craving...  
 :]
                                                                                                         
 
@@ -778,23 +782,22 @@ by means of craving one gives up craving
 
 [:fifth.intoxicant_bow:
 
-the whole point of the whole bow of non intoxication ...
-it is not about not drinking even a drop of alcohol ...
-it is not putting in those situations, in those pastures ...
-that are so intoxicating in themselves ...
-like the effect of drinking half a bottle of wine ...
-would impact the performance of someone who guards something precious ...
+The whole point of the fifth bow is to make an effort to avoid all those intoxicant pastures that would overwheelm ourself.
 
-with a drinking a bit of intoxicant...
-of poision...
-trying to satisfy our thirts for intoxication...
-then, we can't help but:
+It is not about the concrete fact not drinking even one ml of alcohol ...
+Tt is about the general attitude of not putting oneself in those situations, in those pastures, that are so intoxicating in themselves, that gives us the same intoxication effect than the drinking of a glass of wine or beer would impact the performance of a vigilant who is in charge of guarding a precious thing ...
+
+*do not let your heart to be stolen by saying "yes to mara"*
+
+with a drinking a bit of intoxicant ,
+of water that we know poision is bended within ;
+trying to ¿satisfy? our unsatisfiable thirts for intoxicatin ...
+then, we can't help but :
 * lose the control
 * fall into no vigilance
 * not being able to tame ourselves and our animals
 * thus we careslessly behave like an animal
 * to the point that the animals go wild and the womb of our actions are rooted in akusala
-
 
 with [:
 * drinking
@@ -805,6 +808,7 @@ with [:
 * touching
 * thinking
 :] even a bit of maara intoxicant trap pastures
+
 then [:
 * *I miss behave by actions done by body*
 * *I miss behave by actions done by speech*
@@ -829,21 +833,30 @@ do not think because it looks harmless, it is really so,
 > *heedlessness is the stain of one who guards*
 
 do not be heedless,
+
 do not abandond yourself
+
 day night tend the `OX`
 
 do not be lazy,
+
 indeed, be like lazy An:
+
 day night tend the `OX`
 
 
-tldr;
-commit to do this very little pasture managment ,
+**tldr; commit to do this very little pasture managment ,**
+
 from now, until the last step of the journey .
+
 commit to tame yourself as regards siila , samaadhi, pañña
+
 ... be it by day or be it by night
+
 ... be intent on escaping from the pasture of suffering
+
 then
+
 ... the nature of the dhamma is such that you will progress in the path of the essential dhamma
 
 :fifth:]
@@ -913,10 +926,15 @@ be vigilant;
 
 [:
 ..
+
+
     ¡¡ learn the skill of the middle pada !!
+
     renounce to react with delight or aversion
+
     as to become one who is noble
 ..
+
 :]
 
 
