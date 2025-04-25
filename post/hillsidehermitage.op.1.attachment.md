@@ -1553,23 +1553,41 @@ the one that enables the skillfully subsequent surfing of the game by going with
 >           🌕 .. ☸ .. 🌕
 >
 > // ~ 
+>
 > // ~ 
+>
 > // ~ *namo tassa bhagavato arahato sammāsaṃbuddhassa*
+>
 > // ~ 
+>
 > // ~ *namo tassa bhagavato arahato sammāsaṃbuddhassa*
+>
 > // ~ 
+>
 > // ~ *namo tassa bhagavato arahato sammāsaṃbuddhassa*
+>
 > // ~ 
+>
 > // ~ 
+>
 > // [ " `x3` ]
+>
 > // ~ 
+>
 > // ~ 
+>
 > // ~ *may all heart be flowing with :metta:*
+>
 > // ~ 
+>
 > // ~ *may all heart be flowing with :dhamma:*
+>
 > // ~ 
+>
 > // ~ *🙏*
+>
 > // ~ 
+>
 > // ~ 
 >
 >
