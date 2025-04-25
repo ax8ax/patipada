@@ -530,10 +530,13 @@ to put nera the intel_-rekt[ed] stretch ...
 
 keep in the peripherical background the proper context...
 
-1. your vigilance, according your level, from [fencing repairing ... to whathever]
+1. your vigilance, according your level, [from fencing repairing ... to whathever]
 2. the verses of the truth and their meaning
 3. the smiles and significances to build of our meta-perception of the enduring phenomena... how to live, how to act and react, how to tame, how to remove, pati pada, one's own stains, fetters, aasavas
 
+...
+
+list of memorable similes
 
 [SN 56.48](https://suttacentral.net/sn56.48/en/bodhi) the blind tortoise — one great opportunity
 
@@ -597,13 +600,17 @@ Each verse of the dhamma, offers a clear commandment to follow. Learn them. Play
 
 The dhammapada points the path of `Ys` to be follow by showing you: how one direction, the `akusala` lead to suffering; how the other direction, the `kusala` lead to `nibbāna`.
 
+
+> 
 > **The trainer shall make out the well taught verses of dhamma, as an expert picks flowers**.
-
+>
+>    
 > **One who has imbibed in the truth**, lives happy with well seeing mind. The spiritual mature delights in the dhamma made known by the noble.
-
+>    
 > **Those who have conformed themselves to well explained truth of things**, desirous of the further, will cross over the realm of death, so difficult to trascend.
-
+>    
 > Irrigators draw off waters, fetchers straighten arrows, carpenters shape wood, **the spiritual mature tame themselves**.
+> 
 
 
 
