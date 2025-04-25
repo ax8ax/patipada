@@ -492,29 +492,29 @@ by not practicing skills, the maestry in such skills wannes ◖
 > no vigilance is the stain of one who guards [ tame ],
 
 
-> who ever is :
->   ,   energetic
->   ,   recollected
->   ,   pure in conduct
->   ,   considerate
->   ,   self restrain
->   ,   of rigtheous life
->   ,   mindful
->   ;   the glory of such a one
->   , ..    waxes excendenly
->
+> who ever is :  
+>   ,   energetic  
+>   ,   recollected  
+>   ,   pure in conduct  
+>   ,   considerate  
+>   ,   self restrain  
+>   ,   of rigtheous life  
+>   ,   mindful  
+>   ;   the glory of such a one  
+>   , ..    waxes excendenly  
+>   
 >
 >           🌑 .. ... .. 🌚 .. 🌒 .. 🌓 .. 🌔 .. 🌕 .. 🌕
 >
 
-> one ,
-> who :
->   ,   having formerly beeing heedless
->   , ..     later is not heedless
->   ..
->   ;   lights up the world
->   , ..     like the moon freed from clouds
->
+> one ,  
+> who :  
+>   ,   having formerly beeing heedless  
+>   , ..     later is not heedless  
+>   ..  
+>   ;   lights up the world  
+>   , ..     like the moon freed from clouds  
+>  
 >
 >           .o6o6o6o, .  ●  . ,o9o9o9o.
 > 
