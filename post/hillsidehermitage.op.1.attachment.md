@@ -1563,9 +1563,9 @@ the one that enables the skillfully subsequent surfing of the game by going with
 > // ~ *namo tassa bhagavato arahato sammāsaṃbuddhassa*
 >
 > // ~ 
->
+
 > // ~ *namo tassa bhagavato arahato sammāsaṃbuddhassa*
->
+
 > // ~ 
 >
 > // ~ 
