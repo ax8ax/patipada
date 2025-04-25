@@ -16,10 +16,10 @@ That said, I am sure it contains lots of errors coming from my poorly understand
 There were three additional concrete motivations for this document:
 
 
-`[ 1 ]` The post is explained using the smile of a `video_game`, a `roleplay_game`. I think some people would greatly benefit if they try to role_play all_day to act as buddha himself would act in a vr-chat universe. Larp as a buddha, until you succeed to be like one. This will make you happy.
+`[ 1 st ]` The post is explained using the smile of a `video_game`, a `roleplay_game`. I think some people would greatly benefit if they try to role_play all_day to act as buddha himself would act in a vr-chat universe. Larp as a buddha, until you succeed to be like one. This will make you happy.
 
 
-`[ 2 ]` `streamentry` community loves map. The buddha's teachings lay down two detailed maps to help one to walk from the darkness of ignorance to the freedom from suffering... One of them is completely ignored as a map! Of not use, a mere ornamental piece of pottery. Still... worse, the other, while being recognized as a map, it is looked down as a map! Or at being something very different, and just vaguely related, to the very pointing towards the solution...
+`[ 2 nd ]` `streamentry` community loves map. The buddha's teachings lay down two detailed maps to help one to walk from the darkness of ignorance to the freedom from suffering... One of them is completely ignored as a map! Of not use, a mere ornamental piece of pottery. Still... worse, the other, while being recognized as a map, it is looked down as a map! Or at being something very different, and just vaguely related, to the very pointing towards the solution...
 
 In a lot of whathever_buddhism the maps are even looked down. Not just disbelief, but in some point as being suspicious that the buddha, the wheel turning dhamma, and his sādhana, would even encapsulated the *stupid-proof guide_of_how_to pass the game*.
 
@@ -49,7 +49,7 @@ it can be like this ...
 
 
 
-`[ 3 ]` In several and different internet communities of users that follow the teachings of the buddha... a big chunk of the practitioners fall hard to apply the very `first_level` instruction from the gradual training, such as keeping the bows on virtue.
+`[ 3 rd ]` In several and different internet communities of users that follow the teachings of the buddha... a big chunk of the practitioners fall hard to apply the very `first_level` instruction from the gradual training, such as keeping the bows on virtue.
 
 Even more people, yet, fail to apply the very first instruction from the dhammapada.
 
@@ -132,17 +132,17 @@ There are tons of suttas, but everything emanates from three fundamental concept
 The similes are there to help one to understand the teachings. The best is to immerse yourself in the simile for a while, and think how would you act in such mini_game. Bring the alertness, vigilance, energy, and interest you get from that simile to apply it to your meditation. Again; larp, it is of great help.
 
 
-`[ 1. ]` The simile of the dhamma spiritual journey is: the walker and the path.
+`[ 1 st ]` The simile of the dhamma spiritual journey is: the walker and the path.
 
 The goal is to know where on should be heading and how to safely advance step by step in a jungle full of thorns... to reach a place one does not know where it is, if exist at all...
 
 
-`[ 2. ]` The simile of training and struggling according the dhamma is: the trainer and the wild elephant bull.
+`[ 2 nd ]` The simile of training and struggling according the dhamma is: the trainer and the wild elephant bull.
 
 The goal is taming a wild jungle elephant so it marches erect, straight, fearless, and full confident towards his death in an epic battle against the army of Māro, seeing non stop of arrows and formations of shields, sounds of conchs and furious battle drums, smell of blood and death...
 
 
-`[ 3. ]` The simile of the body-mind-background-environment of the training of the dhamma is: the six wild animals the trainer is chained to.
+`[ 3 rd ]` The simile of the body-mind-background-environment of the training of the dhamma is: the six wild animals the trainer is chained to.
 
 The goal is that the trainer tied to the six wilds animals stays close to them, so the six animals sit down, stay calm, do not disturb anyone, are not being disturbed by anyone else, and there's silence and peace.
 
@@ -636,14 +636,15 @@ Know that the things that in each `Y` pull you to `akusala` are these three [ :
 2. **distraction**, `uddhacca` [restlessness] dislike towards stillnes, silence, peace... existencial angst against all the boredom of the holy ᶁamma... In short, one does not want [even to contemplate the not welcoming prospect of the neutral idea] to sit with the animals without doing anything fancy... *abiding in non activity*.
 
 3. **not knowing thinking knowing** `avijjā` [ignorance] thinking you know it is not rooted delusion *when* .. you do not know delusion | you are under the spell of ignorance .. *or* .. when you do not know if it is not rooted in delusion ... Be self honest, know that *you are rooted in blind darkness* and therefore at least *seek a light*, by *cultivating the bright* behaving like the *ariya*, and folloing such role *give up delight in sensual enjoyment*, so you are in position to *cultivate the ७.factors*, `...`
+
 : ]
 
 
 Thus... it is easy to evaluate oneself in this roleplay game. Just ask yourself.
 
-[ 1 ] Am I always going with kusala at each `Y` game movement?
+`[ 1 ]` Am I always going with kusala at each `Y` game movement?
 
-[ 2 ] How do I know I am always going with kuśaḷa? ... am I deluded?
+`[ 2 ]` How do I know I am always going with kuśaḷa? ... am I deluded?
 
 
 
@@ -1142,13 +1143,13 @@ And as a daily meta reflection for a daily usage...
 *What are the three most hard things to do in this training?* [see SN 38.16](https://suttacentral.net/sn38.16/en/bodhi)
 
 
-[ 1 ] How much have I renunciate today as regards: to indulge in seeing the lovely; with senses unrestrained; immoderate in food; lazy for walking the dhammapada; and with inferior energy for taming 247 the wild animals.
+`[ 1 ]` How much have I renunciate today as regards: to indulge in seeing the lovely; with senses unrestrained; immoderate in food; lazy for walking the dhammapada; and with inferior energy for taming 247 the wild animals.
 
 
-[ 2 ] How much content, happiness, friendly, peace, composed, and silence as regards the world I have enjoyed today?
+`[ 2 ]` How much content, happiness, friendly, peace, composed, and silence as regards the world I have enjoyed today?
 
 
-[ 3 ] Why? If I succeeded, then, I should keep striving like this... Whereas if I suffered... chances are I am not practicing properly the dhamma, because when one acts, speaks, and thinks with a pure mind, then `sukha` follows, as the moon follow the path of the stars.
+`[ 3 ]` Why? If I succeeded, then, I should keep striving like this... Whereas if I suffered... chances are I am not practicing properly the dhamma, because when one acts, speaks, and thinks with a pure mind, then `sukha` follows, as the moon follow the path of the stars.
 
 
 
@@ -1464,22 +1465,22 @@ By the way... what is a nice approach to the *dilema* of what to do of the *righ
 These are some helpful mundane narratives to keep in mind for not to end trapped in a net of views...
 
 
-`[ 0. ]` as regards sammādiṭṭhi;
+`[ o ]` as regards sammādiṭṭhi;
 
 the only way to find something is to keep seeking for it until one finds it.
 
 
-`[ 1. ]` as regards taming oneself;
+`[ j ]` as regards taming oneself;
 
 to know one is delusional and needs to be constantly vigilant to step by step walk the dhammapada
 
 
-`[ 2. ]` as regards bodily actions;
+`[ ij ]` as regards bodily actions;
 
 *making comparision of others with oneself*, one shall treat any other better than one would treat oneself.
 
 
-`[ 3. ]` as regards `vacīsaṅkhāra` [ actions by speech, whether internal or external ];
+`[ iij ]` as regards `vacīsaṅkhāra` [ actions by speech, whether internal or external ];
 
 > suppose a mendicant wearing rag robes sees a rag by the side of the road;
 > they’d hold it down with the left foot,
@@ -1493,7 +1494,7 @@ to know one is delusional and needs to be constantly vigilant to step by step wa
 > and [you sohuld **not ingnore** their **pure** behavior](https://suttacentral.net/an5.162/en/bodhi).
 
 
-`[ 4. ]` as regards `views` [ diṭṭhi ; dṛṣṭi ];
+`[ iiij ]` as regards `views` [ diṭṭhi ; dṛṣṭi ];
 
 pacify your views ... don't get emotionally involved with your views...
 
@@ -1505,8 +1506,19 @@ pacify your views ... don't get emotionally involved with your views...
 
 
 
-If you were to learn verses... as part of the training, according how it was done in the times of buddha... the right intention is to remember that this is just the first step, the one that enables the skillfully subsequent step, from moment to moment.
 
+# ■ mere talking about the dhamma is not dhamma
+
+If you were to learn verses... as part of the training, according how it was done in the times of buddha... the right intention is to remember that this learning just the first step:
+
+the one that enables the skillfully intellectual interpretation of the meaning ...
+
+the one that enables the skillfully placing within the mind the proper recollection and perception ...
+
+the one that enables the skillfully subsequent surfing of the game by going with the flow of dhamma, from moment to moment ...
+
+
+> 
 > He who for his own benefit recites the beneficial things ,
 >  
 > but does not act accordingly ,
@@ -1518,6 +1530,7 @@ If you were to learn verses... as part of the training, according how it was don
 > he ;
 >  
 > is not enriched by the ascetic pada.
+> 
 
 
 
@@ -1535,22 +1548,31 @@ If you were to learn verses... as part of the training, according how it was don
 
 
 
-// ~ 
-// ~ 
-// ~ *namo tassa bhagavato arahato sammāsaṃbuddhassa*
-// ~ 
-// ~ *namo tassa bhagavato arahato sammāsaṃbuddhassa*
-// ~ 
-// ~ *namo tassa bhagavato arahato sammāsaṃbuddhassa*
-// ~ 
-// ~ 
-// [ " `x3` ]
-// ~ 
-// ~ 
-// ~ *may all heart be flowing with :metta:*
-// ~ 
-// ~ *may all heart be flowing with :dhamma:*
-// ~ 
-// ~ *🙏*
-// ~ 
-// ~ 
+>
+>
+>           🌕 .. ☸ .. 🌕
+>
+> // ~ 
+> // ~ 
+> // ~ *namo tassa bhagavato arahato sammāsaṃbuddhassa*
+> // ~ 
+> // ~ *namo tassa bhagavato arahato sammāsaṃbuddhassa*
+> // ~ 
+> // ~ *namo tassa bhagavato arahato sammāsaṃbuddhassa*
+> // ~ 
+> // ~ 
+> // [ " `x3` ]
+> // ~ 
+> // ~ 
+> // ~ *may all heart be flowing with :metta:*
+> // ~ 
+> // ~ *may all heart be flowing with :dhamma:*
+> // ~ 
+> // ~ *🙏*
+> // ~ 
+> // ~ 
+>
+>
+>           🌕 .. ☸ .. 🌕
+>
+> 
