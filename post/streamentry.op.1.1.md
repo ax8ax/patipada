@@ -1,6 +1,6 @@
 > faith is that which dispells desire ,  
 > devotion is that which generates knowledge ;  
-> know that :  
+> vedas say that :  
 > knowledge is that which fashions freedom .
 
 in the scope of `dhamma`; wisdom and knowledge are the conditions that make renunciation to arise, renunciation is the consequence and end-goal of wisdom, pañña...
