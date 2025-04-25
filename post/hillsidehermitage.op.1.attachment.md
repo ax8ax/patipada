@@ -1542,13 +1542,12 @@ the one that enables the skillfully subsequent surfing of the game by going with
 > **do what is right at a given moment and leave it behind**
 > 
 > [ not carrying any trace of significance with you ]
->
+>  
 > [ *like the water* does not carry the marks traced on its surface ]
 
 
 
 
-> 
 >
 >           🌕 .. ☸ .. 🌕
 >
@@ -1571,7 +1570,6 @@ the one that enables the skillfully subsequent surfing of the game by going with
 > // ~ *🙏*  
 > // ~   
 > // ~   
-> 
 >
 >           🌕 .. ☸ .. 🌕
 >
