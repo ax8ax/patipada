@@ -832,32 +832,22 @@ do not think because it looks harmless, it is really so,
 
 > *heedlessness is the stain of one who guards*
 
-do not be heedless,
+do not be heedless,  
+do not abandond yourself  
+day night tend the `OX`  
 
-do not abandond yourself
-
-day night tend the `OX`
-
-do not be lazy,
-
-indeed, be like lazy An:
-
-day night tend the `OX`
+do not be lazy,  
+indeed, be like lazy An:  
+day night tend the `OX`  
 
 
-**tldr; commit to do this very little pasture managment ,**
-
-from now, until the last step of the journey .
-
-commit to tame yourself as regards siila , samaadhi, pañña
-
-... be it by day or be it by night
-
-... be intent on escaping from the pasture of suffering
-
-then
-
-... the nature of the dhamma is such that you will progress in the path of the essential dhamma
+**tldr; commit to do this very little pasture managment ,**  
+from now, until the last step of the journey .  
+commit to tame yourself as regards siila , samaadhi, pañña  
+... be it by day or be it by night  
+... be intent on escaping from the pasture of suffering  
+then  
+... the nature of the dhamma is such that you will progress in the path of the essential dhamma  
 
 :fifth:]
 
