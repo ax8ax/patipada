@@ -137,14 +137,14 @@ The similes are there to help one to understand the teachings. The best is to im
 The goal is to know where on should be heading and how to safely advance step by step in a jungle full of thorns... to reach a place one does not know where it is, if exist at all...
 
 
-`[ 2 nd ]` The simile of training and struggling according the dhamma is: the trainer and the wild elephant bull.
+`[ 2 nd ]` The simile of taming and struggling according the dhamma is: the tamer and the wild elephant bull.
 
 The oal is taming a wild jungle elephant so it marches erect, straight, fearless, and full confident towards his death in an epic battle against the army of Māro, seeing non stop of arrows and formations of shields, sounds of conchs and furious battle drums, smell of blood and death...
 
 
-`[ 3 rd ]` The simile of the body-mind-background-environment of the training of the dhamma is: the six wild animals the trainer is chained to.
+`[ 3 rd ]` The simile of the body-mind-background-environment of the taming of the dhamma is: the six wild animals the tamer is chained to.
 
-The goal is that the trainer tied to the six wilds animals stays close to them, so the six animals sit down, stay calm, do not disturb anyone, are not being disturbed by anyone else, and there's silence and peace.
+The goal is that the tamer tied to the six wilds animals stays close to them, so the six animals sit down, stay calm, do not disturb anyone, are not being disturbed by anyone else, and there's silence and peace.
 
 Similes are good off cushion, and even better and more effective in a controlled environment conductive to meditate, to do kusala.
 
@@ -171,23 +171,23 @@ Rather than confront the painful reality: *I am being captive by the senses, by 
 
 From top to bottom, from distant to near, these are the six wild animals.
 
-1. eye, sights, snake. An untrained eye acts like a snake. When he sees something he likes it, he approach serpently to it, surrounds it, hugs it, and try to eat it with his mouth.
+1. eye, sights, snake. An untamed eye acts like a snake. When he sees something he likes it, he approach serpently to it, surrounds it, hugs it, and try to eat it with his mouth.
 
-2. ear, sounds, crocodile. An untrained ear acts like a crocodile. When he hears something he likes it he catch it with his mouth and won't release it, not matter what.
+2. ear, sounds, crocodile. An untamed ear acts like a crocodile. When he hears something he likes it he catch it with his mouth and won't release it, not matter what.
 
-3. nose, smell, bee. An untrained nose acts like a bee. It goes flying from flower to flower, running away from the stingy ones, and following the sweet fragrances to taste them with his mouth.
+3. nose, smell, bee. An untamed nose acts like a bee. It goes flying from flower to flower, running away from the stingy ones, and following the sweet fragrances to taste them with his mouth.
 
-4. tongue, taste, dog. An untrained tongue acts like a dog. When there's prospect of food, he starts salivating, and as soon as the tasty food touch his tongue, rather than chewing and delight in the flavour, he can't help it but swallow as soon as possible, so he can put more stuff into his mouth.
+4. tongue, taste, dog. An untamed tongue acts like a dog. When there's prospect of food, he starts salivating, and as soon as the tasty food touch his tongue, rather than chewing and delight in the flavour, he can't help it but swallow as soon as possible, so he can put more stuff into his mouth.
 
-5. body, touch, jackal. An untrained body acts like a jackal deceive oneself to assume what one is not. The jackal in India is seen as a cunning and deceptive animal, similar to the role of the red fox in other folklore. While the other four senses cognize many different objects, the feeling of touch only recognizes one object: one's body. Thus, it deceives the player into thinking that this external object owned by the world, the body, it is really an *internal* object, owned by him.
+5. body, touch, jackal. An untamed body acts like a jackal deceive oneself to assume what one is not. The jackal in India is seen as a cunning and deceptive animal, similar to the role of the red fox in other folklore. While the other four senses cognize many different objects, the feeling of touch only recognizes one object: one's body. Thus, it deceives the player into thinking that this external object owned by the world, the body, it is really an *internal* object, owned by him.
 
-6. mind, dhammas, monkey. An untrained mind acts like a monkey... jumping from branch to branch. This monkey is called `citta`, which is usually translated in English as mind or heart.
+6. mind, dhammas, monkey. An untamed mind acts like a monkey... jumping from branch to branch. This monkey is called `citta`, which is usually translated in English as mind or heart.
 
 buddha says the six stretches are in themselves hollow. They have no constant essence, they just reflect the external objects they are `phassa` [contacted] with. One does not see them, thus one takes them as I and mine. As a result one goes in a never ending quest of chasing the objects of the world... thinking that is what one wishes, not seeing that those wishes come from the wild animals.
 
 While the senses may be empty in themselves, due the habits, influxes, and stains... those wild animals have a clear strong behaviour and gross palpable desires. When they see, hear, smell, taste, touch, imagine something in the range of their pasture... they insta react! When they like such objects, they step out of the `dvāro` [sense door] to delight in them. When they dislike such objects, they step out of the `dvāro` to get rid of them.
 
-The untrained has no clue he is following the wild animals into their pastures, the untrained has no clue when he steps out of the door following the animal, or whether there was a door at all... Since the wild animals always want to go here and there, one is fully scattered chasing the objects from `saṃsāra`.
+The untamed has no clue he is following the wild animals into their pastures, the untamed has no clue when he steps out of the door following the animal, or whether there was a door at all... Since the wild animals always want to go here and there, one is fully scattered chasing the objects from `saṃsāra`.
 
 buddha says there are five differentiable aspects of the senses. These aspects are fundamentally intermixed, these are the `pañcakkhandha` [five aggregates]: `rūpa` form, `sañña` [carrying knowing] perception, `vedanā` [what causes one to feel] feeling, `viññāṇa` [what causes one to know] knowing, `saṅkhāra` [carrying action] actions.
 
@@ -207,28 +207,28 @@ Let's say one moves his body by properly through the gamepad, through attention 
 
 By using such gamepad one can perform grosser actions such as: `cittasaṅkhāra` [citta actions], `vacīsaṅkhāra` [verbalization], `kāyasaṅkhāra` [bodily actions]. Each `saṅkhāra` has associated an `cetana` [intention]. Those `saṅkhāra` may result in the three kind of actions: actions by mind, actions by speech, actions by body.
 
-What's the problem? The untrained mind has no clue how to skillfully use the gamepad. He does not even know there's a gamepad to being with... He is completely unaware of the intentions behinds his own actions. His attention whirls arround in the rapids of the river of thirst.
+What's the problem? The untamed mind has no clue how to skillfully use the gamepad. He does not even know there's a gamepad to being with... He is completely unaware of the intentions behinds his own actions. His attention whirls arround in the rapids of the river of thirst.
 
 
 
 
 # ■ taming animals [practice]
 
-A key simile buddha used over and over again, is the training wild animals [see MN 125 for instance](https://suttacentral.net/mn125/en/bodhi). If a player were to follow buddha's instructions he would see that: the player himself is to be seen as a wild animal that needs to be tamed, the six senses are to be seen as wild animals that needs to be tame... and the player himself, oneself, is to be seen as the trainer of all those wild suffering-pasturing animals
+A key simile buddha used over and over again, is the taming wild animals [see MN 125 for instance](https://suttacentral.net/mn125/en/bodhi). If a player were to follow buddha's instructions he would see that: the player himself is to be seen as a wild animal that needs to be tamed, the six senses are to be seen as wild animals that needs to be tame... and the player himself, oneself, is to be seen as the tramer of all those wild suffering-pasturing animals
 
 
 **Meditation is meditation as long as one is taming oneself.** This self taming meditation should be done at all times. The effective way to tame is not let the animals misbehave, not even once.
 
-One tames a wild animal not by words, nor violence, but by forcing them to change their behaviours, their pastures. Habits need reinforcement to keep themselves alive [see MN 18](https://suttacentral.net/mn18/en/bodhi). The trainer should not let the animal to roam the pastures they want, thus those habits eventually dry by themselves in the course of time.
+One tames a wild animal not by words, nor violence, but by forcing them to change their behaviours, their pastures. Habits need reinforcement to keep themselves alive [see MN 18](https://suttacentral.net/mn18/en/bodhi). The tamer should not let the animal to roam the pastures they want, thus those habits eventually dry by themselves in the course of time.
 
 
-The habit of the untrained wild senses is to be interested with the objects of the game; to step out of the doors to interact with the world at every single opportunity. The first thing one needs to do, then, is to not allow them to step out on their own, but only when the trainer lets them.
+The habit of the untamed wild senses is to be interested with the objects of the game; to step out of the doors to interact with the world at every single opportunity. The first thing one needs to do, then, is to not allow them to step out on their own, but only when the tamer lets them.
 
 
 
-## `■■` with ox training, you need the mid pada
+## `■■` with ox taming, you need the mid pada
 
-One should train oneself by following the `majjhimapaṭipadā` [middle way]. This means: one does not try to delight in the objects of the `saṃsāra` contacted by the senses; one does not try to get rid of in the objects of the `saṃsāra` contacted by the senses. Instead one endures any experience that attacks the senses until the danger fades away [see SN 35.240](https://suttacentral.net/sn35.240/en/bodhi), like a tortoise put his limbs out of the possibility to being preyed by the jackal.
+One should tame oneself by following the `majjhimapaṭipadā` [middle way]. This means: one does not try to delight in the objects of the `saṃsāra` contacted by the senses; one does not try to get rid of in the objects of the `saṃsāra` contacted by the senses. Instead one endures any experience that attacks the senses until the danger fades away [see SN 35.240](https://suttacentral.net/sn35.240/en/bodhi), like a tortoise put his limbs out of the possibility to being preyed by the jackal.
 
 
 The tortoise does not get angry at the jackal. One does not get angry at the world. One does not get angry with himself. One not accumulate impressions that would the tortoise rumiate the pastures of entretaining such thoughts as he harassed me, he abused me, he attacked me... The tortoise know was under siege by the following_his_own_nature jackal; thus it does not add more misery to his shield by fueling that thirst that has as condition for its arising, the fertile fetters of vanity.
@@ -237,7 +237,7 @@ This is the dhamma, and the way to apply the dhamma This is the meaning of:
 
 > Forgiveness-patient endurance is the ultimately austerity.
 
-The key is that the trainer must keep cool, and have a friendly attitude towards the animal, whether the animal is misbehaving or wellbehaving. It is the nature of the wild animal to wrongly pull towards the door. It is the nature of the trainer to forgive the animal, it is the nature of the trainer to exhert himself so that he gives no change to the animal to missbehave. By repeating this over and over again the six senses and the trainer start to become uninterested with the whole game.
+The key is that the tamer must keep cool, and have a friendly attitude towards the animal, whether the animal is misbehaving or wellbehaving. It is the nature of the wild animal to wrongly pull towards the door. It is the nature of the tamer to forgive the animal, it is the nature of the tamer to exhert himself so that he gives no change to the animal to missbehave. By repeating this over and over again the six senses and the tamer start to become uninterested with the whole game.
 
 
 
@@ -257,9 +257,9 @@ This is where 99.99% of [nowadays] one is when one `hears the dhamma` , before o
 
 ## `■■` sīla ■ fencing
 
-Since the animals are full wild, first of all the trainer needs to fence them, so they do not go into intoxication pastures. In this way, eventually, his level of intoxication will subside enough, so the trainer will be able to interact with them.
+Since the animals are full wild, first of all the tamer needs to fence them, so they do not go into intoxication pastures. In this way, eventually, his level of intoxication will subside enough, so the tamerwill be able to interact with them.
 
-This fencing is done by forcefully imposing the trainer will upon the animals from coarser miss behaviour to subtler miss behaviours. This would correspond to the coarser application of the precepts in body and verbal miss behaviours.
+This fencing is done by forcefully imposing the tamer will upon the animals from coarser miss behaviour to subtler miss behaviours. This would correspond to the coarser application of the precepts in body and verbal miss behaviours.
 
 It is likely one may need to apply subsequent fences, for instance, someone very keen on alcohol may need to fence all pubs, so he don't step into dangerous territory. Someone very keen on the internet, may beed to remove all internet connectivity.
 
@@ -291,9 +291,9 @@ It is likely one may need to apply subsequent fences, for instance, someone very
 > You’re really *tending* the ox!
 
 
-Once they are an enclosed within a reasonable territory, such territory will inevitable contain wholesome and unwholesome pastures; this is the desirable environment [see MN 25](https://suttacentral.net/mn25/en/bodhi). Then trainer needs to actively tend them so they do not get into the unwholesome pastures. At this stage, most of the times the senses will get out of the door without the training being able to pull them back in time: that's ok, as long as they do not get to eat unwholesome grass.
+Once they are an enclosed within a reasonable territory, such territory will inevitable contain wholesome and unwholesome pastures; this is the desirable environment [see MN 25](https://suttacentral.net/mn25/en/bodhi). Then tamer needs to actively tend them so they do not get into the unwholesome pastures. At this stage, most of the times the senses will get out of the door without the taming being able to pull them back in time: that's ok, as long as they do not get to eat unwholesome grass.
 
-This would correspond to the subtle application of the precepts in mental actions, such as not thinking unwholesome thoughts [see MN 19](https://suttacentral.net/mn19/en/bodhi) [see MN 20](https://suttacentral.net/mn20/en/bodhi). This stage ends when the trainer is able to pull back the animals before they open the door. In other words; the trainer now is able to properly `guttadvāro` [guard the doors].
+This would correspond to the subtle application of the precepts in mental actions, such as not thinking unwholesome thoughts [see MN 19](https://suttacentral.net/mn19/en/bodhi) [see MN 20](https://suttacentral.net/mn20/en/bodhi). This stage ends when the tamer is able to pull back the animals before they open the door. In other words; the tamer now is able to properly `guttadvāro` [guard the doors].
 
 
 [ the ox obeys the tamer if and only if the ox is grabbed by the nose by the tamer ]
@@ -306,18 +306,18 @@ After much tending the animals are calm enough that one is able to tie them to a
 
 This would correspond to the subtlest applications of the precepts to the subtlest actions by attention and intention, known as sense restrain.
 
-It is not like you can go to sleep, but at least you can sit in the shade of the tree, and when the ox starts looking with apetitious lovely_eyes a pasture, rather than letting the ox go and have a bit of grass (yourself <trainer> past behaviour), the trainer now will be able to see the signs in the eye of the creature and keep it in the dhamma pastures, by hissing a subtle `tssst`.
+It is not like you can go to sleep, but at least you can sit in the shade of the tree, and when the ox starts looking with apetitious lovely_eyes a pasture, rather than letting the ox go and have a bit of grass (yourself <tamer> past behaviour), the tamer now will be able to see the signs in the eye of the creature and keep it in the dhamma pastures, by hissing a subtle `tssst`.
 
 See the danger in the sligthest fault. Welcoming the *lovely* or proliferations, like those based in *this is so bad he abused me by the mere act of me knowing of its existing* is almost always enough to get the animal in the pasture of breaking the cord in which it is tied to the Indra post.
 
 
-[ the ox obeys the letter order of the trainer ]
+[ the ox obeys the letter order of the tamer ]
 
 
 
 ## `■■` samādhi ■ calming
 
-At this stage the trainer needs to calm them, so the animals do not even pull away from the post, but calmly rest near the post. The way to calm the animal is by being calm oneself, not matter if they are agitated. If the trainer is agitated, the animals will get even more agitated. If the trainer is calm, the animal sooner or later, tired of being agitated, will clam down on their own.
+At this stage the tamer needs to calm them, so the animals do not even pull away from the post, but calmly rest near the post. The way to calm the animal is by being calm oneself, not matter if they are agitated. If the tamer is agitated, the animals will get even more agitated. If the tamer is calm, the animal sooner or later, tired of being agitated, will clam down on their own.
 
 This would correspond from eating in moderation to contentment. One should adopt the atitude to surrender to the dhamma, reality, present, six_five... be content with the little the world provides as nutriment, while understanding the nutriment of the body, and of the mind.
 
@@ -340,9 +340,9 @@ If you recite about renunciation, sacrifice your wordly hopes, throw them up, ea
 
 ## `■■` samādhi ■ pacifying
 
-Then the trainer needs to fully pacify the animals. They are lying by the post, but every time something came up within their range, every time an object approached the door, they can't help open the eyes, up their ears, and follow with interest what's going on outside. The trainer needs to teach them to abandon their longing for the world; which is rooted in the interest for sensual pleasures coming from the objects of the world.
+Then the tamer needs to fully pacify the animals. They are lying by the post, but every time something came up within their range, every time an object approached the door, they can't help open the eyes, up their ears, and follow with interest what's going on outside. The tamer needs to teach them to abandon their longing for the world; which is rooted in the interest for sensual pleasures coming from the objects of the world.
 
-Find a suitables sañña glass to train yourself and your citta into getting uninterested of the world, staring from the gross external rupa, from the subtle internal_assumed aggregates like knowing or feeling.
+Find a suitables sañña glass to tame yourself and your citta into getting uninterested of the world, staring from the gross external rupa, from the subtle internal_assumed aggregates like knowing or feeling.
 
 
 A fletcher straigthen the arrows, not being in a hurry, not doing fast hedless hand work.
@@ -355,7 +355,7 @@ Thuse, one who tame themselves, should understand he is always working in his pr
 
 Breath recollection is quite nice... specially if you use the neutral, simple, quite stupid knowledge of `i am inhaling`, and of `i am exhaling`, to level up your game skills. Would the world have a problem is we were to wait for the current or `i am exhaling` to finish?
 
-Give you some room before you commands your animals to react, to open the door, to see what they bring you from that assumed external that is very felt internal. If the trainer is always ready to react, the animals will naturally follow. If one does seclusion, [even when he is not in the ideal pasture of being alone in the forest, under a tree], from being ready to react, from being eager to react as soon as something happens, from being ready to change our experience, to push the commands, to accumulate and carry uncountable saṅkhāras...
+Give you some room before you commands your animals to react, to open the door, to see what they bring you from that assumed external that is very felt internal. If the tamer is always ready to react, the animals will naturally follow. If one does seclusion, [even when he is not in the ideal pasture of being alone in the forest, under a tree], from being ready to react, from being eager to react as soon as something happens, from being ready to change our experience, to push the commands, to accumulate and carry uncountable saṅkhāras...
 
 
 This would correspond to the abandoning of hindrances and culminate in `jhāna` [meditating beyond the liability of hindrances].
@@ -454,7 +454,7 @@ Māra is kind of saṃsāra Cheerleader who feels sad when one would stop to pay
 
 # ■ sīla [resources]
 
-The gradual training tells you the macro stages you are in. The dhammapada tells you the next concrete behaviorus you should focus to conquer by applying the middle way. The verses of the dhammapada are straightforward to apply...
+The gradual taming tells you the macro stages you are in. The dhammapada tells you the next concrete behaviorus you should focus to conquer by applying the middle way. The verses of the dhammapada are straightforward to apply...
 
 > Non by hatred are hatred ever pacified here in the world, they are pacified by no hatred; this is the eternal law.
 > 
@@ -558,7 +558,7 @@ list of memorable similes
 
 [SN 35.240](https://suttacentral.net/sn35.240/en/bodhi) the tortoise and the jackal — do not chase the external world.
 
-[MN 19](https://suttacentral.net/mn19/en/bodhi) the cow and the cowherd — tend the six trainer, is your sole work
+[MN 19](https://suttacentral.net/mn19/en/bodhi) the cow and the cowherd — tend the six, tamer , this is your sole work
 
 [SN 47.20](https://suttacentral.net/sn47.20/en/bodhi) the most beautiful girl in the land — with the same care should you tend your ox
 
@@ -699,7 +699,7 @@ Thus... it is easy to evaluate oneself in this roleplay game. Just ask yourself.
 `[ Y3 ]` once one is not bleeding anymore, one applies the truth to heal it; overcome hatred by no hatred; overcome your hatred towards those problems that make you suffer
 
 
-`[ Y4 ]` stop lurking towards the world looking for pleasure; embrace the training
+`[ Y4 ]` stop lurking towards the world looking for pleasure; embrace the training 
 
 
 `[ Y5 ]` renounce the world; embrace renunciation
@@ -764,7 +764,7 @@ by means of craving one gives up craving...
                                                                                                         
 
 
-`[ vagga 2 ]` is about the attitude one should always carry. One is a trainer. One is chained to those wild animals 247, so one should train them 247.
+`[ vagga 2 ]` is about the attitude one should always carry. One is a tamer. One is chained to those wild animals 247, so one should tame them 247.
 
 > do not abandond yourself to [ intoxication | no vigilance ],
 > 
@@ -1123,12 +1123,12 @@ What those verses mean? That if one is able to fully guard citta one is free fro
 
 **Hearing the dhamma and** `yoniso manasikāra` **are the requisites for stream entry.** We all have heard the dhamma over and over again. If we are not stream enters, chance are that is because we lack that `yoniso` attention.
 
-`yoniso manasikāra` [attention in regards the womb] is no other than the trainer being able to *read* the wild animal to know:
+`yoniso manasikāra` [attention in regards the womb] is no other than the tamer being able to *read* the wild animal to know:
 
 1. when the animal wants to open the door before the animal moves towards the door.
 2. whether the animal wanting to open the door is rooted in wholesome or unwholesome intentions.
 
-`nivāraṇa` [obstructing, blocking; hindrances] are those five things that block the vision of the trainer, blocking the animals out of his sight. Thus, they hinder the meditation, the self taming.
+`nivāraṇa` [obstructing, blocking; hindrances] are those five things that block the vision of the tamer, blocking the animals out of his sight. Thus, they hinder the meditation, the self taming.
 
 keep in mind, that not vigilance, heedlessness, being with the vision `[ blocked ; citta being out of side ]`, not understanding the situation, not solving the `Y` by going middle step with the natural order... this is the default state. which means not seeing the things as regard the womb: `ayoniso manasikāra`.
 
@@ -1169,11 +1169,11 @@ And as a daily meta reflection for a daily usage...
 
 the dhamma in short
 
-> gotamī, you might know that certain things lead to passion, not dispassion; to yoking, not to unyoking; to accumulation, not dispersal; to more desires, not fewer; to lack of contentment, not contentment; to crowding, not seclusion; to laziness, not energy; to being burdensome, not being unburdensome. categorically, you should remember these things as not the dhamma teaching, not the vinaya training, and not the teacher’s instructions.
+> gotamī, you might know that certain things lead to passion, not dispassion; to yoking, not to unyoking; to accumulation, not dispersal; to more desires, not fewer; to lack of contentment, not contentment; to crowding, not seclusion; to laziness, not energy; to being burdensome, not being unburdensome. categorically, you should remember these things as not the dhamma teaching, not the vinaya [displine] of taming, and not the teacher’s instructions.
 >
 > `Y`
 > 
-> you might know that certain things lead to dispassion, not passion; to unyoking, not to yoking; to dispersal, not accumulation; to fewer desires, not more; to contentment, not lack of contentment; to seclusion, not crowding; to energy, not laziness; to being unburdensome, not being burdensome. categorically, you should remember these things as the dhamma teaching, the vinaya training, and the teacher’s instructions.”
+> you might know that certain things lead to dispassion, not passion; to unyoking, not to yoking; to dispersal, not accumulation; to fewer desires, not more; to contentment, not lack of contentment; to seclusion, not crowding; to energy, not laziness; to being unburdensome, not being burdensome. categorically, you should remember these things as the dhamma teaching, the vinaya [discipline] of taming, and the teacher’s instructions.”
 
 the dhamma in short
 
@@ -1553,8 +1553,7 @@ the one that enables the skillfully subsequent surfing of the game by going with
 > 
 > **do what is right at a given moment and leave it behind**
 > 
-> [ not carrying any trace of significance with you ]
->  
+> [ do not carry any trace of significance with you ]  
 > [ *like the water* does not carry the marks traced on its surface ]
 
 
