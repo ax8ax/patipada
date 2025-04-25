@@ -789,17 +789,17 @@ Tt is about the general attitude of not putting oneself in those situations, in 
 
 *do not let your heart to be stolen by saying "yes to mara"*
 
-with a drinking a bit of intoxicant ,
-of water that we know poision is bended within ;
-trying to ¿satisfy? our unsatisfiable thirts for intoxicatin ...
-then, we can't help but :
+with a drinking a bit of intoxicant ,  
+of water that we know poision is bended within ;  
+trying to ¿satisfy? our unsatisfiable thirts for intoxicatin ...  
+then, we can't help but :  
 * lose the control
 * fall into no vigilance
 * not being able to tame ourselves and our animals
 * thus we careslessly behave like an animal
 * to the point that the animals go wild and the womb of our actions are rooted in akusala
 
-with [:
+with [:  
 * drinking
 * eating
 * smelling
@@ -809,7 +809,7 @@ with [:
 * thinking
 :] even a bit of maara intoxicant trap pastures
 
-then [:
+then [:  
 * *I miss behave by actions done by body*
 * *I miss behave by actions done by speech*
 * *I miss behave by actions done by thoughts*
@@ -817,7 +817,7 @@ then [:
 :]
 
 
-this poison can be [:
+this poison can be [:  
 * alcohol
 * coffe
 * sugar
@@ -827,18 +827,22 @@ this poison can be [:
 * ...
 * [a priori, almost anything]
 :]
-do not think because it looks harmless, it is really so,
 
+do not think because it looks harmless, it is really so, the flower tipped arros of maara, are not seen as painful, but assumed as desirable... that's why one makes from the wishes arising from such flowers, one's own wishes...
+
+> * [that flower] it is mine, i tell you; my own; my precious... yes, my precious [wish]*
+
+be vigilant you do not take anything to be your precious, your dared, your thirst...
 
 > *heedlessness is the stain of one who guards*
 
-do not be heedless,  
-do not abandond yourself  
-day night tend the `OX`  
+do not be heedless ,  
+do not abandond yourself ;  
+day night tend the `OX` .  
 
-do not be lazy,  
-indeed, be like lazy An:  
-day night tend the `OX`  
+do not be lazy ,  
+indeed, be like lazy An ;  
+day night tend the `OX` .  
 
 
 **tldr; commit to do this very little pasture managment ,**  
@@ -914,17 +918,12 @@ be vigilant;
 > they show neither elation nor depression.
 
 
-[:
-..
-
-
-    ¡¡ learn the skill of the middle pada !!
-
-    renounce to react with delight or aversion
-
-    as to become one who is noble
-..
-
+[:  
+..  
+    ¡¡ learn the skill of the middle pada !!  
+    renounce to react with delight or aversion  
+    as to become one who is noble  
+..  
 :]
 
 
