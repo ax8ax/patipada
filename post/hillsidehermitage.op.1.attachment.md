@@ -1549,7 +1549,7 @@ the one that enables the skillfully subsequent surfing of the game by going with
 
 # ; tldr ;
 
-> [ *be quick to do what is beautiful, retrain the mind from evil * ]
+> [ *be quick to do what is beautiful, retrain the mind from evil* ]
 > 
 > **do what is right at a given moment and leave it behind**
 > 
