@@ -1,4 +1,3 @@
-[:title: `subject` [ grazing and ruminating the pastures of the dhammapada .. to reach stream entry ] :title:]
 
 The teachings in three simple `pada` [a step covering a quarter] from three different `sutta` [well taught threads of truth], corresponding to the three big stages:
 
@@ -332,7 +331,7 @@ Move like a *bee, goes taking honey from the flower, without harming color or fr
 > like a beautiful flower, brigthly colour, but without scent
 > even so useless is the well utter speech of one who does not act accordingly
 
-If you recite about renunciation, sacrifice your wordly hopes, throw them up, eat whatever this bodymin throws up, with no disgust, don't react to it, like maha kassapa eating the finger of the leper. Be real, open yourself, uncover what's covered...
+If you recite about renunciation, sacrifice your wordly hopes, throw them up, eat whatever this bodymin throws up, with no disgust, don't react to it, like maha kassapa eating the finger of the lgper. Be real, open yourself, uncover what's covered...
 
 [ the ox obeys the spirit of the taming ... and lies down next to the tamer ]
 
@@ -347,15 +346,15 @@ Find a suitables sañña glass to tame yourself and your citta into getting unin
 
 A fletcher straigthen the arrows, not being in a hurry, not doing fast hedless hand work.
 So the irrigators with water, so the carpenters with wood...
-Thuse, one who tame themselves, should understand he is always working in his precious pottery opera by picking flowers of poetry, and engraving them into one's experiences...
+Thus, one who tame themselves, should understand he is always working in his precious pottery opera by picking flowers of poetry, and engraving them into one's experiences...
 
 > seeing the body as froth , and thoroughly comprehend it's mirage nature ,
 > let one proceed unseen by yama , having broken the flower tipped arrows of maara .
 
 
-Breath recollection is quite nice... specially if you use the neutral, simple, quite stupid knowledge of `i am inhaling`, and of `i am exhaling`, to level up your game skills. Would the world have a problem is we were to wait for the current or `i am exhaling` to finish?
+Breath recollection is quite nice... specially if you use the neutral, simple, quite stupid knowledge of `i am inhaling`, and of `i am exhaling`, to level up your game skills. Would the world have a problem if we were to wait for the current or next `i am exhaling` to finish before reacting to what the world ask for us...?
 
-Give you some room before you commands your animals to react, to open the door, to see what they bring you from that assumed external that is very felt internal. If the tamer is always ready to react, the animals will naturally follow. If one does seclusion, [even when he is not in the ideal pasture of being alone in the forest, under a tree], from being ready to react, from being eager to react as soon as something happens, from being ready to change our experience, to push the commands, to accumulate and carry uncountable saṅkhāras...
+Give you some room before you commands your animals to react, to open the door, to see what they bring you from that assumed external that is very felt internal. If the tamer is always ready to react, the animals will naturally follow. If one does seclusion, [even when he is not in the ideal pasture of being alone in the forest, under a tree], from being ready to react, from being eager to react as soon as something happens, from being ready to change our experience, to push the commands, to accumulate and carry uncountable saṅkhāras... the things good in praaṇaa would follow
 
 
 This would correspond to the abandoning of hindrances and culminate in `jhāna` [meditating beyond the liability of hindrances].
@@ -398,13 +397,13 @@ Some think of sīla, samādhi, and pañña as three axis. They are not. It is ju
 `samādhi` [peace on the harmony of the six_five that support oneself] is
 
 * having enough sīla to not even contemplate the possibility to spill your attentions and intentions in the world
-* having enough pañña to renounce to missbehave by the subtle attention actions and pulls from the senses
+* having enough pañña to renounce to missbehave by the subtle attention actions and pulls from the senses... having enough pañña to renounce to the wordly objects
 
 
 `pañña` [wisdom to see that from the egg of craving arises the suffering of the chicken, and thus does not incubate such eggs, until they become cool, and the chicken dies before being born ] is
 
 * having enough sīla to not wanting to queue up ever again
-* having enough samādhi to still all craving for ever
+* having enough samādhi to still all craving for ever, until it dries out on its own
 
 
 
@@ -571,6 +570,42 @@ list of memorable similes
 
 ...
 
+`[MN 61]`
+
+, the mirror , *the mirror* , the mirror ,  
+the mirror one should always use to reflect oneself  
+the mirror one should always use to see through them to find citta  
+
+...
+
+*uncover what's covered*
+
+...
+
+`[SN 47.8]`
+
+, two kind of cooks , *two kind of cooks* , two kind of cooks ,  
+through the mirror, the chef should only focus to lovely tend the king  
+to appease and give to citta that food that makes citta calm, dispassionated  
+
+...
+
+*uncover what's covered*
+
+...
+
+when the nutrient food is completely understood, desire for the five kinds of sensual stimulation is completely understood.  
+..  
+... phassa ...  
+..  
+... manosañcetanāya ...  
+..  
+when the nutriment viññana is completely understood, name and form is completely understood.  
+..  
+when name and form is completely understood, a noble disciple has nothing further to do,  
+I say [SN 12.63]
+
+...
 
 [SN 22.101](https://suttacentral.net/sn22.101/en/bodhi) suppose, bhikkhus there was a hen with eight, ten, or twelve eggs
 
@@ -1231,7 +1266,7 @@ For more information about yoniso attention [see The Meaning of Yoniso Manasikā
 
 How to approach the whole stage of sīla? [see MN 61](https://suttacentral.net/mn61/en/bodhi)
 
-The gradual training [see DN 2](https://suttacentral.net/dn2/en/bodhi), [see MN 39](https://suttacentral.net/mn39/en/bodhi), [see MN 107](https://suttacentral.net/mn107/en/bodhi)
+The gradual training [see DN 2](https://suttacentral.net/dn2/en/bodhi), [see MN 39](https://suttacentral.net/mn39/en/bodhi), [see MN 107](https://suttacentral.net/mn107/en/bodhi), [see MN 24](https://suttacentral.net/mn24/en/bodhi)
 
 How to abandon the defilements? [see MN 2](https://suttacentral.net/mn2/en/bodhi)
 
@@ -1254,7 +1289,7 @@ Reach stream entry [see MN 9](https://suttacentral.net/mn9/en/bodhi)
 
 How to approach the whole stage of samādhi? [see MN 62](https://suttacentral.net/mn62/en/bodhi)
 
-Rather than forcefully watching a no composed, no unified, no calmed, no peaceful ... a no secluded breath bring live to thoughts of longing for the world...
+Rather than forcefully watching a no composed, no unified, no calmed, no peaceful ... a no secluded breath brings live to thoughts of longing for the world...
 
 *why not following buddha's advices?*
 
@@ -1262,11 +1297,11 @@ Rather than forcefully watching a no composed, no unified, no calmed, no peacefu
 
 # `■■` samādhi ■ -- . -- less is more ++ . ++
 
-Master such be autiful similes of mn 62 ...
-be like earth,
-be like water,
-be like fire,
-be like wind,
+Master such be autiful similes of mn 62 ...  
+be like earth,  
+be like water,  
+be like fire,  
+be like wind,  
 
 Once your mind, by having the same likes and dislikes than earth, by being like earth for long enough, makes from that nutriment its inclinations, and to naturally wants to pasture within the range of the imperturbable qualities of the earth... Then the composed, unified, non scattered mind may naturally repose on the context you put near to the mind;
 like the perception of the inhale and exhale,
@@ -1278,11 +1313,11 @@ like the perception of death,
 > 
 > like the Indra pillar he stands firm
 
-... endure with silence the darts throw at you ;
-... , the earth does not sorrow
-... , the earth does not wail
-... , the earth does not lament
-... , the earth does not sin
+... endure with silence the darts throw at you ;  
+... , the earth does not sorrow  
+... , the earth does not wail  
+... , the earth does not lament  
+... , the earth does not sin  
 
 
 
@@ -1521,7 +1556,7 @@ pacify your views ... don't get emotionally involved with your views...
 
 # ■ mere talking about the dhamma is not dhamma
 
-If you were to learn verses... as part of the training, according how it was done in the times of buddha... the right intention is to remember that this learning just the first step:
+If you were to learn verses... as part of the training, according how it was done in the times of buddha... the right intention is to remember that this learning *is* [just] the first step:
 
 the one that enables the skillfully intellectual interpretation of the meaning ...
 
@@ -1587,3 +1622,10 @@ do not carry any trace of significance with you
 >           🌕 .. ☸ .. 🌕
 >
 > 
+
+
+
+/*
+ *
+ *
+ */
